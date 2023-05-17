@@ -1,0 +1,6 @@
+- Ieene : Good.
+- Kuso : F word.
+- Let's go : Saiko.
+- Thank you : Arigato Gojaymas.
+- Mataatode : See you later.
+- Bye : Sayonara.
