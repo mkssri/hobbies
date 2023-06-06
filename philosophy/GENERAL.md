@@ -1,0 +1,2 @@
+- If something is bugging you, start from there, do not think anything else.
+- If you don't practice something, you will loose it.
