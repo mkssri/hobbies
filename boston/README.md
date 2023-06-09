@@ -2,6 +2,7 @@
 1. Skiing.
 2. Water Boat.
 3. Go to Newyork.
+4. Swimming.
 
 #### Food
 1. 
@@ -15,3 +16,5 @@
 #### Marathon
 1. Charles River Marathon
 2. ~Boston Marathon 
+
+#### Hiking

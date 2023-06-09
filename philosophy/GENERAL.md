@@ -1,2 +1,3 @@
 - If something is bugging you, start from there, do not think anything else.
 - If you don't use it, you will loose it. - Prof. Raymond Klefstad, UC Irvine
+- Rest at the end, not in the middle. - Kobe Bryant English teach quote.
