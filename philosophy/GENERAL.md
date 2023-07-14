@@ -7,4 +7,4 @@
 - You should not compare yourselves with other's, you can only compare yourselves with you from yesterday and become better, as you will know yourself better compared to knowing other's.
 - Grind never rest, neither should you. - Infra 
 - Worry about controllables. - MS Dhoni
-- Don't get emotional w/ cars, house, .... - Coworker
+- Don't get emotional w/ cars, houses, .... - Coworker
