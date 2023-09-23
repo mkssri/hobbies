@@ -4,4 +4,4 @@
 - IAMLUR 
 
 - *Date:* 09/23/23
-- ![puzzle1](/Users/mksriram/Documents/03_GIT/hobbies/games/images/puzzle1.png)
+- ![puzzle1](./images/puzzle1.png)
