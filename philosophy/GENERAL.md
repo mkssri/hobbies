@@ -8,6 +8,7 @@
 - Grind never rest, neither should you. - Infra 
 - Worry about controllables. - MS Dhoni
 - Don't get emotional w/ cars, houses, .... - Coworker
-- Don't make assumption's. .... - S 
-- You are with you till death, so love yourself, others can come and go. - S 
-- It's never going to be ok. - Mom of DG 
+- Don't make assumption's. .... - SF 
+- You are with you till death, so love yourself, others can come and go. - SF 
+- It's never going to be ok. - Mom of DS
+- Keep the plow moving. - Coworker
