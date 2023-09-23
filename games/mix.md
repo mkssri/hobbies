@@ -1,4 +1,4 @@
-**Something's i found online or in books.**
+**Something's i found online or in books.(Just for fun!)**
 
 - *Date:* 09/21/23
 - IAMLUR 
