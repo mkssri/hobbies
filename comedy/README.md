@@ -9,5 +9,5 @@
 2. How do you make an egg-roll? you push it! haha
 3. What would bears be without bees? ears! haha
 4. Why do programmers prefer dark mode? Because light attracts bugs! haha
-
+5. Why it is called garam masala? since we put it when sabji(curry) gets garam(hot)? lol
 ---
