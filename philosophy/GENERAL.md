@@ -12,3 +12,5 @@
 - You are with you till death, so love yourself, others can come and go. - SF 
 - It's never going to be ok. - Mom of DS
 - Keep the plow moving. - Coworker
+- Try to stay still, and understand things come and go, emotions come and go, important thing is accept them all and embrace them all
+  and you can choose to do with them what you want vs being controlled by emotions.  - Kobe Bryant
