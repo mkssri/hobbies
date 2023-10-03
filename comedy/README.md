@@ -20,6 +20,7 @@
 9. What word becomes shorter when you add two letters to it? SHORT.
 10. Doctor: Nurse, how is the little girl doing who swallowed ten quarters last night?
     Nurse: No change yet. Lol
-11.
+11. I threw my phone from the roof, and it broke. I guess the airplane mode was not working.
+12. Some people say the glass is half full. Some people say glass is half empty. Engineers say the glass is twice as big as necessary.
 
 ---
