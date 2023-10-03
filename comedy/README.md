@@ -22,5 +22,7 @@
     Nurse: No change yet. Lol
 11. I threw my phone from the roof, and it broke. I guess the airplane mode was not working.
 12. Some people say the glass is half full. Some people say glass is half empty. Engineers say the glass is twice as big as necessary.
+13. What kind of tree fits in your hand? A: A palm tree!
+14. Are you made of copper and tellurium? Because you are CuTe.
 
 ---
