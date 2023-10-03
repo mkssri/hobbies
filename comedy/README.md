@@ -10,4 +10,16 @@
 3. What would bears be without bees? ears! haha
 4. Why do programmers prefer dark mode? Because light attracts bugs! haha
 5. Why it is called garam masala? since we put it when sabji(curry) gets garam(hot)? lol
+
+---
+
+- Date: 10/02/23
+6. What's the best thing about UDP jokes? A: I don't care if you get them. Haha
+7. Why do Java developers wear sun glasses? A: Because they stare straight into the Eclipse!
+8. What is the most influential culture in the world? Agriculture. Haha
+9. What word becomes shorter when you add two letters to it? SHORT.
+10. Doctor: Nurse, how is the little girl doing who swallowed ten quarters last night?
+    Nurse: No change yet. Lol
+11.
+
 ---
