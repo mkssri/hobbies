@@ -26,3 +26,8 @@
 14. Are you made of copper and tellurium? Because you are CuTe.
 
 ---
+
+- Date: 10/04/23
+15. Today a man knocked on my door and asked for a small donation toward the local swimming pool. I gave him a glass of water. 
+16. To see a man's true face, look to the photos he has not posted.
+---
