@@ -14,3 +14,4 @@
 - Keep the plow moving. - Coworker
 - Try to stay still, and understand things come and go, emotions come and go, important thing is accept them all and embrace them all
   and you can choose to do with them what you want vs being controlled by emotions.  - Kobe Bryant
+- Everyone will have 24h in a day, you will do what you think and you will become what you do. - SF
