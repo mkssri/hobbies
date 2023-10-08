@@ -30,4 +30,14 @@
 - Date: 10/04/23
 15. Today a man knocked on my door and asked for a small donation toward the local swimming pool. I gave him a glass of water. 
 16. To see a man's true face, look to the photos he has not posted.
+
 ---
+
+- Date: 10/04/23
+17. why is math book so unhappy? because it is full of problems haha 
+18. why it is sad that parallel lines have so much in common? because they will never meet. haha 
+19. why did the teacher wear sun classes to school? because her students were so bright! haha lol 
+20. why did the student ate his homework? beacuse teacher said it is a peice of cake. haha
+21. chinese people and indian people can not do business together, because indian people can not live without a bargain, and chinese people can not give you a bargain. haha 
+22. Russell: Can i get a size 10 in those shoes? Asian shopkeeper: ahh No how about 8? Russell: How about I can't negotiate my shoe size?
+23. The meal is not over when i am full. The meal is over when i hate myself. LOL
