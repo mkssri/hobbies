@@ -1,0 +1,1 @@
+- [**Steve Jobs on Failure**](https://www.youtube.com/watch?v=zkTf0LmDqKI&ab_channel=SiliconValleyHistoricalAssociation)
