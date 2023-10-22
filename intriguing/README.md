@@ -1,1 +1,2 @@
 - [**Steve Jobs on Failure**](https://www.youtube.com/watch?v=zkTf0LmDqKI&ab_channel=SiliconValleyHistoricalAssociation)
+- [**Steve Jobs Secrets of Life**](https://www.youtube.com/watch?v=kYfNvmF0Bqw&ab_channel=SiliconValleyHistoricalAssociation)
