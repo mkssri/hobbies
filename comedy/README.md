@@ -41,3 +41,22 @@
 21. chinese people and indian people can not do business together, because indian people can not live without a bargain, and chinese people can not give you a bargain. haha 
 22. Russell: Can i get a size 10 in those shoes? Asian shopkeeper: ahh No how about 8? Russell: How about I can't negotiate my shoe size?
 23. The meal is not over when i am full. The meal is over when i hate myself. LOL
+
+---
+
+- Date: 10/22/23
+24. I got drunk and then got my picture taken. So that way when i get pulled over for drunk driving, I look the same as on my license.
+25. My mother always used to say: The older you get, the better you get, unless you're a banana. LOL  
+26. Before you marry a person, you should first make them use a computer with slow internet to see who they really are.
+27. Breaking up is like knocking a coke machine. You can't do it in one push; you got to rock it back and forth a few times, and then it goes over.
+28. Long runs made me pregnant.
+29. Usher: "Bride or groom?"
+    Wedding guest: "It should be perfectly obvious i'm neither!"
+30. "As you get older, three things happen. The first thing is your memory goes, and i can't remember the other two" LOL.
+31. Never do anything out of hunger. Not even eating.
+32. Why do they call it rush hour when nothing moves?
+33. I like long walks, especially when they are taken by people who annoy me. haha
+34. Why do seagulls fly over the sea? If they flew over the bay, they woukd be bagels. HAHA
+35. How do you stop a bull from charging? Cancel it's credit card. HAHA
+36. Why don't eggs tell jokes? They crack up too easily. HAHA
+37. What do you call a man that irons clothes? Iron Man. Haha
