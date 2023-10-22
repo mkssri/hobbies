@@ -15,3 +15,4 @@
 - Try to stay still, and understand things come and go, emotions come and go, important thing is accept them all and embrace them all
   and you can choose to do with them what you want vs being controlled by emotions.  - Kobe Bryant
 - Everyone will have 24h in a day, you will do what you think and you will become what you do. - SF
+- Always go beyond memorizing formulas, passing tests, to always go deep in to underlying principles of a subject, to track any problem down to the root cause, buried in the dirt, in the dark. - Elon Musk
