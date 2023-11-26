@@ -1,3 +1,4 @@
 - [**Steve Jobs on Failure**](https://www.youtube.com/watch?v=zkTf0LmDqKI&ab_channel=SiliconValleyHistoricalAssociation)
 - [**Steve Jobs Secrets of Life**](https://www.youtube.com/watch?v=kYfNvmF0Bqw&ab_channel=SiliconValleyHistoricalAssociation)
 - [**Steve Job's Goodbye Speech**](https://www.youtube.com/watch?v=sJm0P8xpDzA&ab_channel=dvmadeeasy)
+- [**Shia Labeouf on love**](https://youtu.be/NAgEx_jg5-k?si=0Reg1gWp1U_e4b5B)
