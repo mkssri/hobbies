@@ -1,0 +1,1 @@
+- https://parade.com/970343/parade/logic-puzzles/
