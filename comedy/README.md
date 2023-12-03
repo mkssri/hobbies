@@ -60,3 +60,19 @@
 35. How do you stop a bull from charging? Cancel it's credit card. HAHA
 36. Why don't eggs tell jokes? They crack up too easily. HAHA
 37. What do you call a man that irons clothes? Iron Man. Haha
+
+---
+
+- Date: 12/3/23
+
+38. Light travels faster than sound, which is why people like you appear bright - until they open their mouths.
+39. My girlfriend told me to go out and get something that makes her look sexy, so I got drunk. 
+40. Why relationships are like algebra? Because you look at your X and wonder Y? 
+41. I am not lazy. I am on energy saving mode.
+42. I lost your number. I lost it when I hit delete.
+43. If you need so much space, there's always NASA.
+44. If at first, you don't succeed, skydiving is not for you.
+45. When wearing bikini, women reveal 90% of their body... men are so polite they only look at covered parts.
+46. I hate it when I go to hug someone really sexy and my face smashes right into the mirror.
+
+---
