@@ -19,3 +19,4 @@
 - All Spirituality is about relieving suffering. - Buddha
 - There is no reality except the one contained within us. - Herman Hesse
 - Soul is not contained within the limits of my body, my body is contained within the limitlessness of my soul. - Jim Carrey
+- (12/08/23) Time passes whether you chase the goal or not, chase the goal you'll never regret trying. - Instagram reel
