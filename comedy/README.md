@@ -76,3 +76,11 @@
 46. I hate it when I go to hug someone really sexy and my face smashes right into the mirror.
 
 ---
+
+- Date: 12/8/23
+
+47. I told my wife she should embrace her mistakes. She gave me a hug.
+48. Why did the picture go to the jail? Because it was framed!. 
+49. What did one wall say to the other? I will meet you at the corner!.
+50. why did the coffee file a police report? Because it got mugged!.
+51. If you are American when you go in the bathroom and American when you come out, what are you in the bathroom? (you're peeing) European! Haha
