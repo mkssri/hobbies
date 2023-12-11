@@ -1,0 +1,3 @@
+[submodule "programming/competitive_programming"]
+	path = programming/competitive_programming
+	url = https://github.com/mkssri/competitive_programming
