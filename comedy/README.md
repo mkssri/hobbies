@@ -85,3 +85,5 @@
 50. why did the coffee file a police report? Because it got mugged!.
 51. If you are American when you go in the bathroom and American when you come out, what are you in the bathroom? (you're peeing) European! Haha
 52. I sold my vaccum the other day. All it was doing was collecting dust.
+
+---
