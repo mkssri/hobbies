@@ -20,3 +20,5 @@
 - There is no reality except the one contained within us. - Herman Hesse
 - Soul is not contained within the limits of my body, my body is contained within the limitlessness of my soul. - Jim Carrey
 - (12/08/23) Time passes whether you chase the goal or not, chase the goal you'll never regret trying. - Instagram reel
+- (12/16/23) After all, you miss 100% of the chances you don't take in life. - Linkedin Post
+- (12/16/23) Being brave and learning new things is really how you change your life. - Linkedin Post
