@@ -87,3 +87,13 @@
 52. I sold my vaccum the other day. All it was doing was collecting dust.
 
 ---
+
+- Date: 12/17/23
+
+53. what did the fish say when he swam in to a wall? Dam. Haha
+54. what do you call a can opener that doesn't work? A can't opener.
+55. There are three types of people in the world: Those who can count and those who can't.
+56. Did you hear about italian chef who died? He pasta-way. 
+57. Two muffins were sitting in an oven. One turned to the other and said, "wow it's pretty hot in here." The other one shouted AHAAA! a talking muffin. HAHA
+58. what is forrest gump's email password ? 1forrest1 : sound's like: run forrest run haha.
+59. Did you hear about the guy who invented the knock-knock joke? He won the "no-bell" prize. HAHA
