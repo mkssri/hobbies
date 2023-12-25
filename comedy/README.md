@@ -106,7 +106,7 @@
 61. What do you call a fake noodle? An impasta. ('impostor': pretending to be someone else)
 62. Why does Snoop Dogg use an umbrella? For drizzle. (sounds like: causual) 
 63. What do you call an alligator in a vest? An in-vest-igator. 
-64. What kind of tea is hard to swallo? Reality.
+64. What kind of tea is hard to swallow? Reality.
 65. A man and a giraffe walk into a bar. After a few drinks, the giraffe falls over and dies. The man begins to walk out
     when the bartender stops him. "Hey, you can't leave that lyin' there!" That bartender yells out.
     The man turns around: "it's not a lion. it's a giraffe."
