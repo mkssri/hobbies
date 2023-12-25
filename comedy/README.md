@@ -72,7 +72,7 @@
 42. I lost your number. I lost it when I hit delete.
 43. If you need so much space, there's always NASA.
 44. If at first, you don't succeed, skydiving is not for you.
-45. When wearing bikini, women reveal 90% of their body... men are so polite they only look at covered parts.
+45. What do you call a fly with no wings. a walk HAHA (awok!).
 46. I hate it when I go to hug someone really sexy and my face smashes right into the mirror.
 
 ---
@@ -97,3 +97,20 @@
 57. Two muffins were sitting in an oven. One turned to the other and said, "wow it's pretty hot in here." The other one shouted AHAAA! a talking muffin. HAHA
 58. what is forrest gump's email password ? 1forrest1 : sound's like: run forrest run haha.
 59. Did you hear about the guy who invented the knock-knock joke? He won the "no-bell" prize. HAHA
+
+---
+
+- Date: 12/25/23
+
+60. Two guys walk in to a bar. The third guy ducks.
+61. What do you call a fake noodle? An impasta. ('impostor': pretending to be someone else)
+62. Why does Snoop Dogg use an umbrella? For drizzle. (sounds like: causual) 
+63. What do you call an alligator in a vest? An in-vest-igator. 
+64. What kind of tea is hard to swallo? Reality.
+65. A man and a giraffe walk into a bar. After a few drinks, the giraffe falls over and dies. The man begins to walk out
+    when the bartender stops him. "Hey, you can't leave that lyin' there!" That bartender yells out.
+    The man turns around: "it's not a lion. it's a giraffe."
+66. Why can't a nose be 12 inches long? BecaUSE then it would be a foot. (1 foot = 12 inches)
+67. Why don't dinosaurs talk? Because they are dead.
+
+---
