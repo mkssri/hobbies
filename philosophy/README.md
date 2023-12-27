@@ -22,3 +22,4 @@
 - (12/08/23) Time passes whether you chase the goal or not, chase the goal you'll never regret trying. - Instagram reel
 - (12/16/23) After all, you miss 100% of the chances you don't take in life. - Linkedin Post
 - (12/16/23) Being brave and learning new things is really how you change your life. - Linkedin Post
+- (12/26/23) Self love means discipline. Discipline is doing what you hate to do, but doing it like you love it. - Mike Tyson
