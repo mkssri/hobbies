@@ -23,4 +23,4 @@
 - (12/16/23) After all, you miss 100% of the chances you don't take in life. - Linkedin Post
 - (12/16/23) Being brave and learning new things is really how you change your life. - Linkedin Post
 - (12/26/23) Self love means discipline. Discipline is doing what you hate to do, but doing it like you love it. - Mike Tyson
-- (12/26/23) The most men live lives of quite desperation. - hear from Joe Rogan.
+- (12/26/23) The most men live lives of quite desperation. - heard from Joe Rogan.
