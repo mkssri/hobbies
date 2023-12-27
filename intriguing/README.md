@@ -4,3 +4,4 @@
 - [**Shia Labeouf on love**](https://youtu.be/NAgEx_jg5-k?si=0Reg1gWp1U_e4b5B)
 - [**Emirates B777 NEW BUSINESS and ECONOMY CLASS(murali featured)**](https://youtu.be/C2BWszfJtvc?si=0S5_yxB4UWO6woJv)
 - [**Oprah Winfrey | 30 Minutes for the NEXT 30 Years of Your LIFE**](https://youtu.be/dScjN4EKuZo?si=nGD8Xvgkr-bSguNo)
+- [**Steve Jobs: We don't ship junk**](https://www.youtube.com/watch?si=YzNCM2MJY81r2aHN&v=eAo8gnUCWzE&feature=youtu.be)
