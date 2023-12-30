@@ -1,0 +1,17 @@
+- david goggins
+- les brown
+- joe rogan
+- denzel washington
+- jim rohn
+- oprah
+- dana white
+- kobe bryant
+- khabib
+- jim carrey
+- mike tyson
+- shia lebof
+- warren buffet
+- floyd mayweather
+- robert downey jr
+- jay shetty
+- [jelly roll](https://youtu.be/fwCcQfpeH4E?si=e2P6fbX7bnAkb0kL)
