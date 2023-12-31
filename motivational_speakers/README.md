@@ -7,6 +7,9 @@
 - dana white
 - kobe bryant
 - khabib
+- arnold schwarzenegger
+- mahendra singh dhoni
+- [shah rukh khan](https://youtube.com/shorts/YiP2pdxl4yI?si=1DUvqkIYJgbe-0zc)
 - jim carrey
 - mike tyson
 - shia lebof
