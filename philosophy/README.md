@@ -28,3 +28,4 @@
 - (12/26/23) Self love means discipline. Discipline is doing what you hate to do, but doing it like you love it. - Mike Tyson
 - (12/26/23) The most men live lives of quite desperation. - heard from Joe Rogan
 - (12/28/23) You can't have a better tomorrow if you are too busy thinking about yesterday. - Youtube Vedio
+- (01/01/24) finding the purpose of the life is the life's purpose. - friend's friend
