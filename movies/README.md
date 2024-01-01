@@ -4,4 +4,4 @@
 - spirited away
 
 ## inspirational
-- (12/31/23) unbroken &check;
+- (12/31/23) unbroken :white_check_mark: 
