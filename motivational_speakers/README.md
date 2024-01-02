@@ -3,7 +3,7 @@
 - joe rogan
 - denzel washington
 - jim rohn
-- oprah
+- [oprah](https://www.youtube.com/watch?v=RLTgnOuYb6o)
 - dana white
 - kobe bryant
 - khabib
