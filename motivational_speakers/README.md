@@ -1,4 +1,4 @@
-- david goggins
+- [david goggins](https://www.youtube.com/watch?v=z4H8E-RJirs)
 - les brown
 - joe rogan
 - denzel washington
