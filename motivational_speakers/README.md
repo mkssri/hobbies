@@ -4,7 +4,7 @@
 - denzel washington
 - jim rohn
 - [oprah](https://www.youtube.com/watch?v=RLTgnOuYb6o)
-- dana white
+- [dana white](https://www.youtube.com/watch?v=AuqBA3aRr4A&t=13s)
 - kobe bryant
 - khabib
 - arnold schwarzenegger
