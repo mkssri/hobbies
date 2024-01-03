@@ -18,4 +18,4 @@
 - [robert downey jr](https://youtube.com/shorts/f_3qYgfPJVw?si=15MVZshN8tq19q51)
 - jay shetty
 - [jelly roll](https://youtu.be/fwCcQfpeH4E?si=e2P6fbX7bnAkb0kL)
-- [jordan peterson]
+- jordan peterson
