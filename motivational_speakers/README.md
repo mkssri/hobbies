@@ -8,9 +8,9 @@
 - kobe bryant
 - khabib
 - arnold schwarzenegger
-- mahendra singh dhoni
+- [mahendra singh dhoni](https://youtu.be/PWDQpEBq_pU?si=u0jygiboXRDikrDJ)
 - [shah rukh khan](https://youtube.com/shorts/YiP2pdxl4yI?si=1DUvqkIYJgbe-0zc)
-- jim carrey
+- [jim carrey](https://youtu.be/aWTH7Kp2lfE?si=HcNyC9gaKEMiilrc)
 - mike tyson
 - shia lebof
 - warren buffet
