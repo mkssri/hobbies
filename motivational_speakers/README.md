@@ -1,7 +1,7 @@
-- [david goggins](https://www.youtube.com/watch?v=z4H8E-RJirs)
+- [david goggins](https://youtu.be/TLKxdTmk-zc?si=LEl9okusjcrfxyDn)
 - les brown
 - joe rogan
-- denzel washington
+- [denzel washington](https://www.youtube.com/watch?v=tbnzAVRZ9Xc)
 - jim rohn
 - [oprah](https://www.youtube.com/watch?v=RLTgnOuYb6o)
 - [dana white](https://www.youtube.com/watch?v=AuqBA3aRr4A&t=13s)
