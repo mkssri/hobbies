@@ -1,5 +1,4 @@
-**date: **
-- Yoga Philosophy: 
+### yoga philosophy
 - (12/11/2023) Pantanjali Sutras.
 - (01/09/2024) [kashmiri shaiva](https://iep.utm.edu/kashmiri/)
 
