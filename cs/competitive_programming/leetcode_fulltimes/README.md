@@ -117,65 +117,65 @@
 | Mar21, 2023 | 0 | |
 | Mar22, 2023 | 2 | 205, 929 |
 | Mar23-24, 2023 | 0 | forgot |
-| Mar25-27, 2023 | 0 | Murali did C Programing |
+| Mar25-27, 2023 | 0 | C Programing |
 | Mar28, 2023 | 1 | 160 |
-| Mar29-Apr22, 2023 | 0 | Murali did not do competitive coding |
+| Mar29-Apr22, 2023 | 0 | :) |
 | Apr23, 2023 | 1 | 206 |
-| Apr24-May5, 2023 | 0 | Murali did not do competitive coding |
+| Apr24-May5, 2023 | 0 | :) |
 | May6, 2023 | 1 | 206 |
-| May6-May10, 2023 | 0 | Murali did not do competitive coding |
+| May6-May10, 2023 | 0 | :) |
 | May11, 2023 | 1 | 21 |
-| May12-28, 2023 | 0 | murali did not do competitive programming |
+| May12-28, 2023 | 0 | :) |
 | May29, 2023 | 2 | 217, 242 |
-| May30-June11, 2023 | 0 | murali did not do competitive programming, but he did work on hws in c/c++(ics45c) class at UCI |
+| May30-June11, 2023 | 0 | :) |
 | June12, 2023 | 2 | 21, 141 |
-| June13-June15, 2023 | 0 | murali did not do competitive programming |
+| June13-June15, 2023 | 0 | :) |
 | June16 | 1 | 226 |
-| June17-July3, 2023 | 0 | murali did not do competitive programming |
+| June17-July3, 2023 | 0 | :) |
 | July4 | 1 | 19 |
-| July5-11 | 0 | murali did not do competitive programming |
+| July5-11 | 0 | :) |
 | July12 | 1 | 704 |
-| July13 | 0 | murali did not do competitive programming |
+| July13 | 0 | :) |
 | July14 | 1 | 33 |
-| July15 | 0 | murali did not do competitive programming |
+| July15 | 0 | :) |
 | July16 | 4 | 125,11,1,242 |
-| July17 | 0 | murali did not do competitive programming |
+| July17 | 0 | :) |
 | July18 | 3 | 136,191,338 |
 | July19 | 2 | 371, 190 |
-| July20 | 0 | murali did not do competitive programming |
+| July20 | 0 | :) |
 | July21 | 1 | 252 |
 | July22 | 1 | 20 |
 | July23 | 1 | 104 |
-| July24 | 0 | murali did not do competitive programming |
+| July24 | 0 | :) |
 | July25 | 2 | 543, 110 |
 | July26 | 1 | 100 |
-| July27 | 0 | murali did not do competitive programming |
+| July27 | 0 | :) |
 | July28 | 1 | 572 |
-| July29-31 | 0 | murali did not do competitive programming |
+| July29-31 | 0 | :) |
 | Aug1 | 1 | 242 |
 | Aug2 | 1 | 121 |
-| Aug3-5 | 0 | murali did not do competitive programming |
+| Aug3-5 | 0 | :) |
 | Aug6 | 1 | 1046 |
 | Aug7 | 1 | 70 |
 | Aug8 | 1 | 746 |
-| Aug9-10 | 0 | murali did not do competitive programming |
+| Aug9-10 | 0 | :) |
 | Aug11 | 1 | 66 |
 | Aug12 | 1 | 202 |
 | Aug13 | 1 | 268 |
-| Aug14 | 0 | murali did not do competitive programming |
+| Aug14 | 0 | :) |
 | Aug15 | 1 | 200 |
-| Aug16-24 | 0 | murali did not do competitive programming |
+| Aug16-24 | 0 | :) |
 | Aug25 | 1 | 347 |
-| Aug26-29 | 0 | murali did not do competitive programming |
+| Aug26-29 | 0 | :) |
 | Aug30 | 1 | 3 |
 | Aug31 | 1 | 704 |
-| sep1-3 | 0 | murali did not do cp |
+| sep1-3 | 0 | :) |
 | sep4 | 1 | 88 |
-| sep5-30 | 0 | murali did not do competitive programming |
+| sep5-30 | 0 | :) |
 | oct1 | 1 | 49 |
-| oct2-6 | 0 | murali did not do competitive programming |
+| oct2-6 | 0 | :) |
 | oct7 | 1 | 238 |
-| oct8 | 0 | murali did not do competitive programming |
+| oct8 | 0 | :) |
 | oct9 | 1 | 271 |
-| oct10-dec24 | 0 | murali did not do competitive programming |
+| oct10-dec24 | 0 | :) |
 | dec25 | 1 | 167 |
