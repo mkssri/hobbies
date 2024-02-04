@@ -20,3 +20,4 @@
 - [jelly roll](https://youtu.be/fwCcQfpeH4E?si=e2P6fbX7bnAkb0kL)
 - jordan peterson
 - [johnny depp](https://youtu.be/lkijrKkUb4c?si=_J7F6EJOhxlyGH6L)
+- [pitbull](https://www.youtube.com/watch?v=JqSX6KIrjkg)
