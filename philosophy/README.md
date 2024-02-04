@@ -29,10 +29,9 @@
 - (12/26/23) The most men live lives of quite desperation. - heard from Joe Rogan
 - (12/28/23) You can't have a better tomorrow if you are too busy thinking about yesterday. - Youtube Vedio
 - (01/01/24) finding the purpose of the life is the life's purpose. - friend's friend
-- (01/20/24) one way: life can be treated as hiit haha - if you go too hard, you can burn out, if you are too soft, you will become so soft and go into depression haha
+- (01/20/24) one way: life can be treated as hiit - if you go too hard, you can burn out, if you are too soft, you will become so soft and can go into depression.
              but if you want to go somewhere you need to balance both :) :)
-            - similar to driving a car as you manage your own pace fast/slow, doing yoga, 
-            - my professor raymond klefstad also does this :)
-            - hardeep does this :)
+            - similar to driving a car as you manage your own pace fast/slow, doing yoga
+            - my professor and co-worker also does this :)
 - (02/04/24) if you keep doing learning keeps on coming. - david goggins (youtube vedio)
 - (02/04/24) if you help other's, god will find a way to help you. - dad
