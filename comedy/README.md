@@ -1,4 +1,4 @@
-**Just for fun! collecting jokes that i read online or books or something else**
+**Just for fun! no offence, just added jokes which i collected from reading online/books**
 - Date: 09/23/23
 1. murali went to starbucks in drumhill on saturday as he is bored at home, it is at a place called drumhill near chelmsford,
    there he was searching for drum and hill, but he never found one, then he got curious why they named the place drumhill lol haha 
@@ -110,7 +110,17 @@
 65. A man and a giraffe walk into a bar. After a few drinks, the giraffe falls over and dies. The man begins to walk out
     when the bartender stops him. "Hey, you can't leave that lyin' there!" That bartender yells out.
     The man turns around: "it's not a lion. it's a giraffe."
-66. Why can't a nose be 12 inches long? BecaUSE then it would be a foot. (1 foot = 12 inches)
+66. Why can't a nose be 12 inches long? Because then it would be a foot. (1 foot = 12 inches)
 67. Why don't dinosaurs talk? Because they are dead.
+
+---
+
+- Date: 02/14/24
+
+68. what did the mime say to his audience? nothing. he held his character because he is a professional.
+69. what did the buddhisht say to the hot dog vendor? make me one with everything.
+70. what did the janitor say when he jumped out of the closet? supplies!
+71. it's inappropriate to make a dad joke if you are not a dad. its faux pa(faux pas: social blunder in french).
+72. what did the buffalo say when his son left? (bison: bye, son! haha)
 
 ---
