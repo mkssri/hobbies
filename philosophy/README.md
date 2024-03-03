@@ -36,3 +36,4 @@
 - (02/04/24) if you keep doing learning keeps on coming. - david goggins (youtube vedio)
 - (02/04/24) if you help other's, god will find a way to help you. - dad
 - (02/05/24) compartmentalize your brain and concentrate on only one thing at a time. - coworker
+- (03/02/24) focus on: learning, food, work, exercise & health. - friend
