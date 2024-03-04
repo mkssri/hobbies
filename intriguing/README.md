@@ -7,3 +7,4 @@
 - [**Steve Jobs: We don't ship junk**](https://www.youtube.com/watch?si=YzNCM2MJY81r2aHN&v=eAo8gnUCWzE&feature=youtu.be)
 - [**DISCIPLINE YOURSELF - Best Motivational Speeches**](https://www.youtube.com/watch?v=yB_QdwaUMLo)
 - mother(reference) girl friend(pointer) - heard from my professor Raymond Klefstad at UC Irvine, when he was tried to explain CS concepts in class.
+- [**I DON'T KNOW WHAT I'M DOING - David Goggins Advice**](https://youtu.be/Bms-OWPHJng?si=rvZ-omvjKmWeSasJ)
