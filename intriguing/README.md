@@ -8,3 +8,4 @@
 - [**DISCIPLINE YOURSELF - Best Motivational Speeches**](https://www.youtube.com/watch?v=yB_QdwaUMLo)
 - mother(reference) girl friend(pointer) - heard from my professor Raymond Klefstad at UC Irvine, when he was tried to explain CS concepts in class.
 - [**I DON'T KNOW WHAT I'M DOING - David Goggins Advice**](https://youtu.be/Bms-OWPHJng?si=rvZ-omvjKmWeSasJ)
+- (03/05/2024) day to remember!!! murali is able to swim now (free style! :))
