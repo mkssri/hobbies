@@ -21,3 +21,4 @@
 - jordan peterson
 - [johnny depp](https://youtu.be/lkijrKkUb4c?si=_J7F6EJOhxlyGH6L)
 - [pitbull](https://www.youtube.com/watch?v=JqSX6KIrjkg)
+- [andrew tate](https://www.youtube.com/watch?v=MjRwshUh3fg)
